@@ -1,1 +1,2 @@
 Audrie Nielsen
+nielsaud@oregonstate.edu
